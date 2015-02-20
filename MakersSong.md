@@ -7,4 +7,5 @@ Makers, Makers, We're Movers & Shakers!
 How to be twice as smart,
 the bonus speeder-uppper
 we don't to part
-untill we get our supper
+'cause we gotta eat supper.
+
